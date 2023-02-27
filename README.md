@@ -1,1 +1,1 @@
-cool site that i designed
+esse site está sujeito a updates e upgrades
